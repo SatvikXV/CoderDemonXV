@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CoderDemonXV
 - 👀 I’m interested in coding and gaming
 - 🌱 I’m currently learning many things
-- 💞️ I’m looking to collaborate on programming
+- 💞️ I’m looking to showcase my worth
 - 📫 Just message me here, i'm always here  
 
 <!---
